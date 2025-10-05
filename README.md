@@ -1,1 +1,1 @@
-Cool game 🆒
+Super Cool game 🆒
